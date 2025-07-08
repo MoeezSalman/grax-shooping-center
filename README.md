@@ -1,1 +1,0 @@
-# grax-shooping-center
